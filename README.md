@@ -1,1 +1,1 @@
-# ntscan
+ESCANEA Y TE RESUELVO
